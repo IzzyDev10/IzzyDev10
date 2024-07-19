@@ -1,4 +1,4 @@
-i'm flexing extension 
+i'm flexing extension 🖥️🚀
 
 <!---
 IzzyDev10/IzzyDev10 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
